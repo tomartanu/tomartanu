@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **tomartanu2507@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1OYYuSrrde_lcZfLbNvouK0AR3bjV-sLB/view?usp=sharing](https://drive.google.com/file/d/1OYYuSrrde_lcZfLbNvouK0AR3bjV-sLB/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/18H8T2RgYOp1YXLZdEf0ZTYOq-pxmmITe/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
